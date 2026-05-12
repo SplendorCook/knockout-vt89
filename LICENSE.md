@@ -1,4 +1,4 @@
-#  
+#  secure Script for brainrot evolution is the best brainrot evolution Script, featuring teleport and auto-collect. Safe and powerful for all your needs.
 
 
 
